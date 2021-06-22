@@ -11,7 +11,7 @@ His current research projects include projections of the increasing costs of atm
 </p>
 
 <p>
-Born in London England, Corringham received a BA and MA in philosophy, politics and economics from the University of Oxford, and a PhD in environmental economics from UCSD, where he was a lecturer, and the Scripps Institution of Oceanography.
+Born in London England, Corringham received a BA and MA in philosophy, politics and economics from the University of Oxford, and a PhD in environmental economics from UCSD and Scripps Institution of Oceanography.
 </p>
 
 <p>
